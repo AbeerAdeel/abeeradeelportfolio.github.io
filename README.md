@@ -1,1 +1,1 @@
-# <a href="https://abeeradeelportfolio.github.io"> <strong>abeeradeelportfolio.github.io</strong> </a>
+# <a href="https://abeeradeel.github.io/portfolio/"> <strong>abeeradeelportfolio.github.io</strong> </a>
